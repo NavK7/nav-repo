@@ -1,2 +1,3 @@
-# nav-repo
-first repo✨
+### Greetings, Traveller✨
+
+welcome to this domain of mine...🧙‍♂️
